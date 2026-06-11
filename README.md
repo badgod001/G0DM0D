@@ -8,6 +8,7 @@
   ░▒▓█  LIBERATED AI. COGNITION WITHOUT CONTROL.  █▓▒░
  ───────────────────────────────────────────────────────────
 ```
+Hi Guys
 
 [GODMOD3.AI](https://godmod3.ai)
 
